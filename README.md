@@ -1,1 +1,1 @@
-# mozarts-ghost
+# mozarts-ghost-band
